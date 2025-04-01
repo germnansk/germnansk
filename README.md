@@ -10,5 +10,5 @@
 <!---
 germnansk/germnansk is a ✨ special ✨ repository because its archive `README.md` (this file) appears in your GitHub profile.
 You can click the preview link to see your changes.f46596fc72713c76afbe5b0a63dacb0a265ed634
---->
+--->f46596fc72713c76afbe5b0a63dacb0a265ed634
  
