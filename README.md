@@ -1,8 +1,8 @@
 - 👋 Hi, I'm @germnansk
 - 👀 I'm interested in... recovering the account
 - 🌱 I'm currently learning...
-- 💞️ I'm looking to collaborate on... World id
-- 📫 How to contact me... support
+- 💞️ I'm looking to collaborate on... World id06719458-1e3
+- 📫 How to contact me... support yhuytgjk@gmail.com 
 - 😄 Pronouns:... Germnask1 l
 - ⚡ Curious fact:...0xc5102fE9359FD9a28f877a67E36B0F050d81a3CC
 - 💵 I'm betting on...0xc5102fE9359FD9a28f877a67E36B0F050d81a3CC of my own money
